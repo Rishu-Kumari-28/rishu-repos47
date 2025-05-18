@@ -1,3 +1,3 @@
-# rishu-repos47
+rishu-repos47
 shopping management
 uyghjjhhhkj
